@@ -1,1 +1,1 @@
-# SiddharthSingh23/nyssfeed
+# SiddharthSingh23.github.io/nyssfeed
